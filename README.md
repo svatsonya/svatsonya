@@ -6,12 +6,12 @@
 
 <p align="center">
 <br> ˗ˏˋ🎡⋆*━━━━━‧˚ʚ🎪ɞ˚‧━━━━━｡⋆🎠˖·˳. 
-<br> ˚🎭  hii my name is 
-<img width="75" height="35" alt="2026-05-19-SONYA (2)" src="https://github.com/user-attachments/assets/b5da3ae8-5ae9-497f-af3e-f9e37d67ceb1" />  🎭⋆
+<br> hii my name is 
+<img width="75" height="35" alt="2026-05-19-SONYA (2)" src="https://github.com/user-attachments/assets/b5da3ae8-5ae9-497f-af3e-f9e37d67ceb1" /> 
 <br> 🎈   21 у.о   🎈
-<br> ⋆  please interact ! no DNI  ⋆
-<br> 🤡⋆  personality type - joker  ⋆🤡
-<br> ★⋆  afk - w2i  ⋆★                
+<br>   please interact ! no DNI  
+<br>   personality type — joker  
+<br> ★⋆  afk — w2i  ⋆★                
 <br> ˗ˏˋ🎡⋆*━━━━━‧˚ʚ🎪ɞ˚‧━━━━━｡⋆🎠˖·˳.
 
 <p align="center">
