@@ -15,7 +15,7 @@
 <br> ˗ˏˋ🎡⋆*━━━━━‧˚ʚ🎪ɞ˚‧━━━━━｡⋆🎠˖·˳.
 
 <p align="center">
-˳🎈ʚ <img width="90" height="90" alt="0be7b6c6c104e1d4f765e3f76b833929-Photoroom" src="https://github.com/user-attachments/assets/0b7293b1-3bdf-4d95-a802-f8a08f311160" /> ɞ🎈˳
+˳🍎ʚ <img width="90" height="90" alt="0be7b6c6c104e1d4f765e3f76b833929-Photoroom" src="https://github.com/user-attachments/assets/0b7293b1-3bdf-4d95-a802-f8a08f311160" /> ɞ🍎˳
 </p>
 
 <p align="center">
