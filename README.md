@@ -1,5 +1,5 @@
 <p align="center">
-<img width="340" height="219" alt="2740173_aead6" src="https://github.com/user-attachments/assets/83e27d25-7861-4005-b656-232081b827fe" />
+<img width="349" height="231" alt="tumblr_d3c3b0e1d85a659399477c2de860c651_444ca3c8_400" src="https://github.com/user-attachments/assets/d333d2f5-2143-4764-a1e1-2833e2801202" />
 </p>
 
 <p align="center">
@@ -25,7 +25,7 @@
 <br> можете всегда написать мне и решить вопрос! а если не хотите идите НАХУ Й! 
 
 <p align="center">
-<img width="150" height="131" alt="2753731_36357" src="https://github.com/user-attachments/assets/bec58f7d-ee5f-4500-ae24-e5fbce9e2ff1" />
+<img width="175" height="159" alt="tumblr_7be774a3937636d6de34fb62ddf89d3c_39ac51f4_400" src="https://github.com/user-attachments/assets/1d15ee1a-94a7-4b0a-a9c0-8860bf2c9d33" />
 </p>
   
 <div align="center">
