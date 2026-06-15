@@ -25,7 +25,7 @@
 <br> можете всегда написать мне и решить вопрос! а если не хотите идите НАХУ Й! 
 
 <p align="center">
-˳🍎ʚ <img width="90" height="90" alt="0be7b6c6c104e1d4f765e3f76b833929-Photoroom" src="https://github.com/user-attachments/assets/0b7293b1-3bdf-4d95-a802-f8a08f311160" /> ɞ🍎˳
+<img width="150" height="131" alt="2753731_36357" src="https://github.com/user-attachments/assets/bec58f7d-ee5f-4500-ae24-e5fbce9e2ff1" />
 </p>
   
 <div align="center">
