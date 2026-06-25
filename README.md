@@ -24,9 +24,6 @@
 <br> если вас что-то смутило в моих словах/поведении/приколах 
 <br> можете всегда написать мне и решить вопрос! а если не хотите идите НАХУ Й! 
 
-<p align="center">
-<img width="175" height="159" alt="tumblr_7be774a3937636d6de34fb62ddf89d3c_39ac51f4_400" src="https://github.com/user-attachments/assets/1d15ee1a-94a7-4b0a-a9c0-8860bf2c9d33" />
-</p>
   
 <div align="center">
 <video src="https://github.com/user-attachments/assets/d9dde6a5-dad7-4e99-9188-6387a4d7d0b4"
